@@ -1,4 +1,4 @@
-### Hi, I am THOMAS KEN. 👋
+### Hi, I am Thomas. 👋
 
 I am a senior web & blockchain developer.
 I have over 9 years of experience in web & blockchain technology development and IT consult.
